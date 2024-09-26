@@ -1,4 +1,4 @@
-## Retro Bowl Unblocked 76: Your Ultimate Football Adventure
+## Retro Bowl Unblocked Games 76 - Click To Play
 
 Retro Bowl Unblocked 76 offers an exhilarating football gaming experience perfect for players of all levels. With its nostalgic retro graphics and intuitive controls, you can easily manage your own team, customize player attributes, and strategize your way to victory. 
 
